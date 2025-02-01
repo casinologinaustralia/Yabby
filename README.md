@@ -1,4 +1,4 @@
-# Yabby Casino Login Australia
+# Yabby Casino Login
 
 ### [🎰 50 Free Spins Yabby Casino No Deposit Bonus 💎](https://tinyurl.com/2w8thbu4)
 
